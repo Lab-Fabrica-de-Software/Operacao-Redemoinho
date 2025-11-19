@@ -1,4 +1,4 @@
-# 🚀 Operação Redemoinho
+
 
 <img width="1919" height="679" alt="Captura de tela 2025-11-19 103613" src="https://github.com/user-attachments/assets/14dc0ea2-1a34-4d5f-978d-ec9e4c52f95b" />
 
